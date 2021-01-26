@@ -1,3 +1,3 @@
-# ΖχΖ®ΖϊΈ®Ώΐ
+# ν¬νΈν΄λ¦¬μ¤
 
- https://jjy0706.github.io/frist/
+https://jjy0706.github.io/frist/
